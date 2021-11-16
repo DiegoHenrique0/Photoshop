@@ -1,2 +1,2 @@
 # Photoshop
- Projetos realizados no photoshop
+ Imagens de minha altoria todas feitas no Adobe Photoshop.
